@@ -2,4 +2,4 @@
 
 <p align="center"> why is it so painful to wake up in the mroning i'm an adul fir fucksSAKE
 
-　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　 ![Untitled277_20250707085951](https://github.com/user-attachments/assets/898c62d1-99fe-4058-b783-04392aec8e2b)
+　<p align="center">　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　 ![Untitled277_20250707085951](https://github.com/user-attachments/assets/898c62d1-99fe-4058-b783-04392aec8e2b)
