@@ -1,4 +1,4 @@
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=buldakcarbonara&label=　𝓃𝑜𝑜𝒹𝓈　&color=F2B2C3&style=flat" alt="buldakcarbonara" /> </p>
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=buldakcarbonara&label=　( °ヮ° )　&color=F2B2C3&style=flat" alt="buldakcarbonara" /> </p>
 <img width="36" height="56" alt="Untitled284_20250711193810" src="https://github.com/user-attachments/assets/91fcee58-ed4a-4c78-bad4-806553c9d9b2" />
 
 <p align="center"> placeholder ・ placeholder ・ placeholder ・ placeholder
