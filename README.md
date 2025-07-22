@@ -1,5 +1,7 @@
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=buldakcarbonara&label=　𝓃𝑜𝑜𝒹𝓈　&color=F2B2C3&style=flat" alt="buldakcarbonara" /> </p>
+<img width="36" height="56" alt="Untitled284_20250711193810" src="https://github.com/user-attachments/assets/91fcee58-ed4a-4c78-bad4-806553c9d9b2" />
 
 <p align="center"> placeholder ・ placeholder ・ placeholder ・ placeholder
+　<p align="center">　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　 <img width="469" height="288" alt="Untitled277_20250707085951" src="https://github.com/user-attachments/assets/be1928a9-7481-40e6-9309-1a54d909ce1a" />
 
-　<p align="center">　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　 ![Untitled277_20250707085951](https://github.com/user-attachments/assets/898c62d1-99fe-4058-b783-04392aec8e2b)
+placeholders are there for my sites :(
