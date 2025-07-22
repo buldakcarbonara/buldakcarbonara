@@ -4,4 +4,4 @@
 <p align="center"> placeholder ・ placeholder ・ placeholder ・ placeholder
 　<p align="center">　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　 <img width="469" height="288" alt="Untitled277_20250707085951" src="https://github.com/user-attachments/assets/be1928a9-7481-40e6-9309-1a54d909ce1a" />
 
-placeholders are there for my sites :(
+placeholders are there for my wip sites :(
